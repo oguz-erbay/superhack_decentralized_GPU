@@ -1,1 +1,0 @@
-# superhack_decentralized_GPU
